@@ -1,0 +1,1 @@
+# T470-Hackintosh-OC-BigSur-7300u
